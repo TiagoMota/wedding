@@ -1,2 +1,0 @@
-# wedding
-https://togetherlikecopypaste.com
